@@ -1,4 +1,4 @@
-i am not a vivziepop fan i have read the webcomic and i think the pilot looks dumb as shit
+I am not a vivziepop fan I have read the we8comic and i think the pilot looks dumb as shit! DXXXX
 
 ![](https://files.catbox.moe/kkjpit.webp)
 
