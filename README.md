@@ -12,4 +12,4 @@ I'm the Grinch of the northwest, you tell me I'm the 8est!
 
 ![](https://files.catbox.moe/kkjpit.webp)
 
-I'll figure out who drew that in a minute 8ruh.
+Guy I need help picking between thief of mind, 8ard of heart, and prince of light... I'm going crazy!!!!!!!!
